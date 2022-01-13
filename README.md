@@ -10,7 +10,7 @@
 http://flv4.people.com.cn/videofile7//pvmsvideo/2021/11/6/QuanMeiTiZhiZuoErBu-YanChuanJiYu_5f85fa91b3a5cdb62937a5ab5d7c10d9.mp4" type="video/mp4">
 </video>
 
-##引言
+## 引言
  
 &ensp;&ensp;&ensp;&ensp;**中国共产党自一九二一年成立以来，始终把为中国人民谋幸福、为中华民族谋复兴作为自己的初心使命，始终坚持共产主义理想和社会主义信念，团结带领全国各族人民为争取民族独立、人民解放和实现国家富强、人民幸福而不懈奋斗，已经走过一百年光辉历程。**
  
@@ -18,7 +18,7 @@ http://flv4.people.com.cn/videofile7//pvmsvideo/2021/11/6/QuanMeiTiZhiZuoErBu-Ya
 
 ![](https://w.wallhaven.cc/full/md/wallhaven-mdzory.png)
 
-##Part.1 六中全会精神重点总结
+## Part.1 六中全会精神重点总结
 ### 一、夺取新民主主义革命伟大胜利
 ![](http://www.people.cn/NMediaFile/2022/0108/MAIN202201080916469292968683471.jpg)
 >** 星星之火,可以燎原**
