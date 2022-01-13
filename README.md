@@ -20,7 +20,7 @@ http://flv4.people.com.cn/videofile7//pvmsvideo/2021/11/6/QuanMeiTiZhiZuoErBu-Ya
  
 &ensp;&ensp;&ensp;&ensp;**一百年来，党领导人民浴血奋战、百折不挠，创造了新民主主义革命的伟大成就；自力更生、发愤图强，创造了社会主义革命和建设的伟大成就；解放思想、锐意进取，创造了改革开放和社会主义现代化建设的伟大成就；自信自强、守正创新，创造了新时代中国特色社会主义的伟大成就。党和人民百年奋斗，书写了中华民族几千年历史上最恢宏的史诗。**
 
-![](https://w.wallhaven.cc/full/md/wallhaven-mdzory.png)
+![](https://img.bbs.euweb.cn/user_files/346/bbs/38352669_1624590144.jpg)
 
 ## Part.1 六中全会重点精神总结
 ### 一、夺取新民主主义革命伟大胜利
